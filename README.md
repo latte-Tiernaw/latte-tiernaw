@@ -12,7 +12,8 @@
 > sɪd ╭ Tiernaw ╮
 > *Discord:* [`lu.mxn`](https://discord.com/users/908563963392958464)
 > ⸺﹒︶︶﹒＞﹒⭔
-> [![Twitter Follow][![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://x.com/latte_tiernaw)
+> 
+> [![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://x.com/latte_tiernaw)
 
 
  

@@ -1,6 +1,6 @@
 > ⸺﹒︶︶﹒＞﹒
 > 
->   <h1 align="center">! ﹒⺌**Shiro**๑✿<width="30px"></h1>
+>   <h1 align="center"><width="30px"></h1>
 > 
 > :herb:  ۪   ꒱   𝐌D Ope𝖞 *!*
 >  An𝓨 p𝖗𝖔𝖞𝖔u𝖘 *!!*

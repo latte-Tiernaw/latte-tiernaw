@@ -10,7 +10,8 @@
 > 
 >The content on my accounts is delicate and created by me because I want to; I’m not seeking any help.
 > 
-> <img align='right' src='https://user-images.githubusercontent.com/5713670/87202985-820dcb80-c2b6-11ea-9f56-7ec461c497c3.gif' width='200"'>
+[![Spotify](https://spotify-github-profile.vercel.app/api/view?uid=315fx2l3w2yml6pun5bnvdlghgce&cover_image=true&theme=default&show_offline=false&background_color=121212)](https://open.spotify.com/user/315fx2l3w2yml6pun5bnvdlghgce)
+
 
 > shtwt edtwt ㅤㅤ
 >

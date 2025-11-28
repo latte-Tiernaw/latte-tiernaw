@@ -5,7 +5,7 @@ I am nish. I am a beginner developer, here some info about me
 - 👀 I’m interested in [Java](https://www.oracle.com/in/java/). I know JavaScript, HTML and CSS (self-taught, so it is likely that i don't about know something)
 - 💞️ I’m looking to collaborate on nothing... You can contact me for collaboration though!
 #### 📫 How to reach me
-- Discord: [`Nishant1500#9735`](https://discord.com/users/908563963392958464)
+- Discord: [`lu.mxn`](https://discord.com/users/908563963392958464)
 
 [![discord](https://discordapp.com/api/guilds/787578856122351626/embed.png?style=banner2)](https://discord.gg/xckZRGyDrM)
  

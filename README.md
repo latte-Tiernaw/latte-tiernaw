@@ -6,8 +6,6 @@ I am nish. I am a beginner developer, here some info about me
 - 💞️ I’m looking to collaborate on nothing... You can contact me for collaboration though!
 #### 📫 How to reach me
 - Discord: [`Nishant1500#9735`](https://discord.com/users/908563963392958464)
-- Email: [`Click To Mail!`](mailto:nishant.behera0607@gmail.com) or copy **`nishant.behera0607@gmail.com`**
-- Or Contact me in this discord server: [Bee Hub!](https://discord.com/invite/xckZRGyDrM)
 
 [![discord](https://discordapp.com/api/guilds/787578856122351626/embed.png?style=banner2)](https://discord.gg/xckZRGyDrM)
  

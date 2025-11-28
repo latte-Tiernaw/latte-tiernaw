@@ -1,24 +1,27 @@
-<img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
+   <img src="https://cdn.discordapp.com/emojis/1437263799114797066.webp?size=44" alt="Emoji" width="44" height="44">
 
 
 
 > ⸺﹒︶︶﹒＞﹒
 > 
 > 
-> :herb:  ۪   ꒱   𝐌D Ope𝖞 *!*
+>  md open Any pronous
+> 🚫 virtual relationships
 > 
->  An𝓨 p𝖗𝖔𝖞𝖔u𝖘 *!!*
+>The content on my accounts is delicate and created by me because I want to; I’m not seeking any help.
+> 
 > <img align='right' src='https://user-images.githubusercontent.com/5713670/87202985-820dcb80-c2b6-11ea-9f56-7ec461c497c3.gif' width='200"'>
 
-> .  ˖  ₊ㅤꃳ  O.M   𝄒ᘡ  ˖  ࣪✦୧・> .     ㅤㅤ
+> shtwt edtwt ㅤㅤ
 >
-> ▨﹒ꜜ ﹐**ℓᴜᴄʜᴏ**  
 > 
-> *love* (https://x.com/PunchingCat)
-> sɪd ╭ Tiernaw ╮
-> *Discord:* [`lu.mxn`](https://discord.com/users/908563963392958464)
-> ⸺﹒︶︶﹒＞﹒⭔
-> 
+> love (https://x.com/PunchingCat)
+>
+> Discord: [`lu.mxn`](https://discord.com/users/908563963392958464)
+>
+>  ⸺﹒︶︶﹒＞﹒⭔
+
+
 > [![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://x.com/latte_tiernaw)
 
 

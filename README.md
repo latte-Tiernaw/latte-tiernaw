@@ -23,9 +23,6 @@
 
 
 
-> 
-> love (https://x.com/PunchingCat)
->
 > Discord: [`lu.mxn`](https://discord.com/users/908563963392958464)
 >
 >  ⸺﹒︶︶﹒＞﹒⭔

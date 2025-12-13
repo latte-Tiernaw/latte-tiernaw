@@ -22,8 +22,7 @@
 
 
 
-> shtwt edtwt ㅤㅤ
->
+
 > 
 > love (https://x.com/PunchingCat)
 >

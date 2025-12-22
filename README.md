@@ -13,12 +13,4 @@
 
 
 
-
-
-
-
-> [![Twitter Follow](https://img.shields.io/twitter/follow/latte_tiernaw?style=social)](https://x.com/latte_tiernaw)
-
-
-
 <img src="https://media.discordapp.net/attachments/1436408577169559563/1436408738582892594/deco_brillos.gif?ex=692b2ee2&is=6929dd62&hm=32b0271a034bf771401cbe5323e836e51fbcd86c98e468c9fe2e98081b836129&=&width=508&height=64" alt="GIF de brillos" width="508" height="64">
